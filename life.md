@@ -11,8 +11,9 @@
 - ~1999 Summer job
 - 1999-2004 Bechelors Degree University
 - 15/03/2000 Started dating Cuddly
+- 25/06/2002 Driving License and my first car (Nissan Micra)
 - 2004 Some Freelance jobs
 - 2005-2006 Intership at DataFly
 - 2006-2013 Consultant at Datacomp
 - 16/06/2012 Got Married with Cuddly
-- 15/01/2014 Inês is born
+- 10/01/2014 Inês will born
